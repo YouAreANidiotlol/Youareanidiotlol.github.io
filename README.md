@@ -1,0 +1,1 @@
+# Youareanidiotlol.github.io
